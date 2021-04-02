@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @saidbouhouche
+- 👀 I’m interested in Web development
+- 🌱 I’m currently learning Web development, my learning journey started in early 2021
+- I really enjoy learning, I can't wait to be a professional web developer. See you then!  
+- 📫 How to reach me ...My E-mail : rachidarawi@gmail.com
